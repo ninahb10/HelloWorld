@@ -1,3 +1,5 @@
+![headshot](star_wars_wallpaper.jpg)
+
 # A little bit about Nina Hille Bringsdal
 Hello! My name is Nina, and I am a biologist currently working on my master thesis in coastal ecology.
 
